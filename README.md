@@ -1,1 +1,1 @@
-# Sorry!
+# Sorry!  Documents cannot be shared.
