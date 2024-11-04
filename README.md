@@ -25,8 +25,8 @@ Orientation IT : https://drive.google.com/drive/folders/18fSQjdKlawpmANRjT1tT2fj
 SE 3rd year | June - Nov semester : <br/>
 https://drive.google.com/drive/folders/1y1f10rjeTG7uZaMRk7fq6U8zOfGXLPGX?usp=sharing
 
-
-
+SE 3rd year | Feb - May semester : <br/>
+https://drive.google.com/drive/folders/1zIhvyDR7IQl_94FGeb1RQvnmTQokThJz?usp=sharing
 
 <h2>CSNE </h2> 
 
