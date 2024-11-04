@@ -28,6 +28,9 @@ https://drive.google.com/drive/folders/1y1f10rjeTG7uZaMRk7fq6U8zOfGXLPGX?usp=sha
 SE 3rd year | Feb - May semester : <br/>
 https://drive.google.com/drive/folders/1zIhvyDR7IQl_94FGeb1RQvnmTQokThJz?usp=sharing
 
+SE 4th year | June - Nov semester : <br/>
+https://drive.google.com/drive/folders/14kN60eIrRR6LQjHBnwh9ZCR4ZduUNup4?usp=sharing
+
 <h2>CSNE </h2> 
 
 <h4>Get common module documents for CSNE and IT students from IT Semester Drive Links.. </h4>
