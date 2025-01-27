@@ -1,3 +1,5 @@
+```I don't own any of this credits goes to respective repo owner```
+
 # SLIIT_ALL_-Semesters_Docs
 
 <h2>General IT</h2>
